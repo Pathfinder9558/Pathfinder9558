@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Will Hale at the Pathfinder Group, LTD
+- 👋 Hi, 
 - 👀 I’m interested in
 - 🌱 I’m currently learning - 
 - 💞️
